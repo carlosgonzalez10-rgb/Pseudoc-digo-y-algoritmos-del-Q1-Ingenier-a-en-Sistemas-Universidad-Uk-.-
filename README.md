@@ -1,0 +1,1 @@
+# Pseudoc-digo-y-algoritmos-del-Q1-Ingenier-a-en-Sistemas-Universidad-Uk-.-
